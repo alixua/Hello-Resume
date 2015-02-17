@@ -1,14 +1,14 @@
 ALEXANDRA BISHOP
 ================
-#### (502) 468-4261
-#### alexandra.k.bishop@gmail.com
+##### (502) 468-4261
+##### alexandra.k.bishop@gmail.com
 
 ### PRODUCTION EXPERIENCE
  
-* MY LIFE IN VOGUE - DIRECTOR 
+* MY LIFE IN VOGUE - *DIRECTOR* 
     * Finalist –Vogue.com, “My Life in Vogue” Competition
     * House of Boone Pictures 2014
-* CARTHAGE - PRODUCTION ASSISTANT
+* CARTHAGE - *PRODUCTION ASSISTANT*
     * Short Film by Steven Schardt 
     * Most-Favored Nations/Antebellum Pictures 2013 
  

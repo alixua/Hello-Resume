@@ -3,7 +3,7 @@ ALEXANDRA BISHOP
 (502) 468-4261
 --------------
 ## alexandra.k.bishop@gmail.com
-> ------------
+
 ### PRODUCTION EXPERIENCE
  
 * MY LIFE IN VOGUE - DIRECTOR 

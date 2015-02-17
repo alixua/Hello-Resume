@@ -18,7 +18,7 @@ ALEXANDRA BISHOP
 > ------------
  
 ### PROFESSIONAL EXPERIENCE
-> “Alix is reliable, punctual and a team player. She approaches every assignment with a positive attitude.”    
+ “Alix is reliable, punctual and a team player. She approaches every assignment with a positive attitude.”    
        > > Rick Hannon, Manager, Complete Music Video DJ   
 
 #### COMPLETE MUSIC VIDEO PHOTO _2012 – 2014_

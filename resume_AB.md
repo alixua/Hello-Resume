@@ -3,9 +3,7 @@ ALEXANDRA BISHOP
 (502) 468-4261
 --------------
 ## alexandra.k.bishop@gmail.com
-
 > ------------
-
 ### PRODUCTION EXPERIENCE
  
 * MY LIFE IN VOGUE - DIRECTOR 
@@ -44,11 +42,11 @@ ALEXANDRA BISHOP
 > * Composed a podcast, chat label, and essay for a piece of art on loan from the Allen Memorial Art Museum, on display to the public at the CMA. See it [here.](http://www.clevelandart.org/art/behind-the-scenes/featured-gallery-installation/beyond-oberlin/allegory-of-poverty/ "Podcast")
 > * Worked directly with CMA curators and staff to create clear and concise records, and studied each division of the museum, from packaging to conservation.  
 
-> ##### ADDITIONAL CAREER HISTORY:
-> > JMS Make—Artist Assistant, Louisville, KY; 2009   
-> > WOBC College and Community Radio 91.5 FM—Radio DJ, Oberlin, OH; 2008-2009   
-> > Ground Floor Gallery—Marketing INTERNSHIP, Louisville, KY; 2007   
-> > Oberlin Costume Shop—Seamstress, Oberlin, OH; 2006-2008   
+##### ADDITIONAL CAREER HISTORY:
+> JMS Make—Artist Assistant, Louisville, KY; 2009   
+> WOBC College and Community Radio 91.5 FM—Radio DJ, Oberlin, OH; 2008-2009   
+> Ground Floor Gallery—Marketing INTERNSHIP, Louisville, KY; 2007   
+> Oberlin Costume Shop—Seamstress, Oberlin, OH; 2006-2008   
 
 **EDUCATION**
 > BA, OBERLIN COLLEGE, Religious Studies and Art History, Oberlin, OH; 2006-2010
